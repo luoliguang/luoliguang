@@ -1,1 +1,1 @@
-👋 我叫罗洋洋，感谢AI的出现。
+👋 Thank you, ai. Thank you to everyone who gives.
